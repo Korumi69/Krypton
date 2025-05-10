@@ -11,3 +11,5 @@ How to use:
 3. BOOM! You got "The" DonutSMP Client
 
 4. Go into https://discord.com/invite/vzXzFpv2gk cause they cracked it :)
+
+5. For help ask in the discord or make a issue.
