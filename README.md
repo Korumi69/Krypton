@@ -12,4 +12,4 @@ How to use:
 
 4. Go into https://discord.com/invite/vzXzFpv2gk cause they cracked it :)
 
-5. For help ask in the discord or make a issue.
+5. For help ask me on discord @unst4ppable!
