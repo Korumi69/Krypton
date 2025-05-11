@@ -13,3 +13,5 @@ How to use:
 4. Go into https://discord.com/invite/vzXzFpv2gk cause they cracked it :)
 
 5. For help ask me on discord @unst4ppable!
+
+![image](https://github.com/user-attachments/assets/5874372f-e6c1-4e43-94ad-44160ebcc078)
